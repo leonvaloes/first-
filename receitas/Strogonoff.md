@@ -26,5 +26,5 @@
 
 - Adicione os cogumelos, o ketchup e a mostarda.
 
-- Incorpore [o creme de leite](https://blog.tudogostoso.com.br/dicas-de-cozinha/creme-de-leite-fresco-caseiro-de-caixinha-e-mais/) e retire do fogo antes de ferver.
+- Incorpore o creme de leite e retire do fogo antes de ferver.
 - Sirva com arroz branco e batata palha.
